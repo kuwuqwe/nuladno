@@ -1,2 +1,1 @@
-# nuladno
-qq
+universal answer 
